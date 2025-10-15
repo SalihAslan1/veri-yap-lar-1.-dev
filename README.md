@@ -1,0 +1,1 @@
+# veri-yap-lar-1.-dev
